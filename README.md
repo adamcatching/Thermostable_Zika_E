@@ -1,1 +1,1 @@
-# Thermostable_Zika_E
+# Thermostable Zika E-protein
